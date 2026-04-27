@@ -1,3 +1,3 @@
 # Perververs-cloud-computin
 ciao
-Andrea Piangina
+Andrea + Gaia
